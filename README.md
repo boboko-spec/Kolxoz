@@ -1,0 +1,1 @@
+kolxoz.index.html
